@@ -1,2 +1,2 @@
 # RandomIvy
-Random Ivy mark ona wall surface
+Random Ivy mark on a wall surface
